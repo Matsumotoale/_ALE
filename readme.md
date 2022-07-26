@@ -1,0 +1,1 @@
+Olá este recomeçando. Os estudos.
